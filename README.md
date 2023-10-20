@@ -1,0 +1,1 @@
+Wiki about strange cats
